@@ -1,0 +1,1 @@
+# Patent-generator-elektryczny-energi-na-radjacje-fal-radiokatywnych-promieniowania-t-a
